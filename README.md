@@ -1,5 +1,5 @@
 OLUYEMI OLUDIPE
-+44 7309 990 900  |  holutheanalyst@outlook.com  |  London, United Kingdom  |  www.linkedin.com/in/oluyemi-oludipe-066523396 
++44 7309 990 900  |  holutheanalyst@outlook.com  |  London, United Kingdom  |  www.linkedin.com/in/oluyemi-oludipe-066523396 | 
 
 
 Professional Summary
